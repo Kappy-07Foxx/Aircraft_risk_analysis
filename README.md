@@ -80,7 +80,7 @@ Recommendations
 
 \##  Author
 
-Sylvia Wambui – \[https://github.com/Slyy007-wambz]
+Sylvia Wambui – \[https://github.com/Kappy-07Foxx]
 
 
 
